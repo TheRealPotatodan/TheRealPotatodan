@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on fun programs
 - 📫 How to reach me: My Gmail, TheRealPotatodan@gmail.com
 - 😄 Pronouns: N/A
-- ⚡ Fun fact: Im crazy
+- ⚡ Fun fact: Im also A content creator. Go Check out My Youtube Channel 
 
 <!---
 TheRealPotatodan/TheRealPotatodan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
